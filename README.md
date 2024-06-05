@@ -54,5 +54,7 @@ I am detail-oriented and results-driven professional with expertise in scalable 
 ## Contact me ## 
 * 💼 LinkedIn: https://www.linkedin.com/in/grace-kim0506/
 * 📩 Email: haeunkim48@gmail.com
+* 💓 Portfolio: https://shorturl.at/sxQ0O
+
 
     
